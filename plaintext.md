@@ -14,7 +14,7 @@ Perché se lo accendi, tocchi, mi guardi qualsiasi cosa, mi incazzo peggio di tu
 
 Se le cose mi vanno bene, ti ricompenso ad alto livello;
 
-Se vuoi togliere la pellicola per dare il controllo devi essere sicuro al 100% perché anche questa pellicola, anche a lei ci tengo;
+Se vuoi togliere la pellicola per dare il controllo devi essere sicuro al 100% di quello che ti ho detto perché, anche questa pellicola, anche a lei ci tengo;
 
 Nulla, non ti sto a ripetere due volte;
 
